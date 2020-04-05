@@ -3,4 +3,4 @@ Tutorial repository
 
 Hi there!
 
-I'm Amaru, love pizza.
+I'm Amaru, i love yo mama
